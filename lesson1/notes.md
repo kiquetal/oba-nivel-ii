@@ -33,8 +33,7 @@
 
 	Los vidrios laterales y el posterior son templados.
 	Se resquebrajan completamente.
-
-
 	Futuro vidrios laterados laminados.
+
 	
 	
